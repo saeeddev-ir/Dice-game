@@ -14,6 +14,12 @@ I hope you like it ❤
  
 best of luck 😎
 
+
+
+https://github.com/saeeddev-ir/Dice-game/assets/105293554/b7c295d9-8859-4f64-b395-1d10df22e5d0
+
+
+
 ![dice](https://github.com/saeeddev-ir/Dice-game/assets/105293554/d6412c70-ef16-443c-8ef0-dba101359f55)
 
 
